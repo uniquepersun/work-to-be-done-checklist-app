@@ -15,7 +15,7 @@ just clone it OR alternatively go to the release page: You got it :fire: <br>
 - [another!](https://github.com/user-attachments/assets/26a1903d-5efa-4d4e-8b64-d921966c250b) :open_hands:
 
 
-## :performing_arts: contact me!! :heart::fire:
+## :sunglasses: contact me!! :heart::fire:
 Find uniquepersun on: 
 - [X (formerly twitter)](https://x.com/uniquepersun) <br>
 - [instagram](https://instagram.com/uniquepersun) <br>
